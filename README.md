@@ -1,1 +1,0 @@
-# money-take-platform
